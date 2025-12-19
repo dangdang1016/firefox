@@ -26,3 +26,25 @@ chat.mozilla.org in the [Introduction channel](https://chat.mozilla.org/#/room/#
 
 
 ![圖片描述](https://i.postimg.cc/Qd59hnvd/ying-mu-xie-qu-hua-mian-2025-12-19-171935.png)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+https://youtu.be/5obcFp_OwY4
