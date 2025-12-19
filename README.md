@@ -16,3 +16,13 @@ We use [bugzilla.mozilla.org](https://bugzilla.mozilla.org/) as our issue tracke
 If you have a question about developing Firefox, and can't find the solution
 on [Firefox Source Docs](https://firefox-source-docs.mozilla.org/), you can try asking your question on Matrix at
 chat.mozilla.org in the [Introduction channel](https://chat.mozilla.org/#/room/#introduction:mozilla.org).
+
+
+
+
+
+
+
+
+
+![圖片描述](https://i.postimg.cc/Qd59hnvd/ying-mu-xie-qu-hua-mian-2025-12-19-171935.png)
